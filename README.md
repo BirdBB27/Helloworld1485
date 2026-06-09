@@ -1,3 +1,3 @@
 <div align="center">
-  <img src="https://64.media.tumblr.com/50e287b140281b6f905c8a80661ab769/d993d5b382c02ec4-c7/s640x960/767d615a81ec55e08e3dfbf31b0c89127e7d6a31.gifv" width="500" alt="Mô tả ảnh" />
+  <img src="(https://www.reddit.com/media?url=https%3A%2F%2Fi.redd.it%2Fet502wzyy22h1.gif)" width="500" alt="Mô tả ảnh" />
 </div>
